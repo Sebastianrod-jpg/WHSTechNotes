@@ -10,3 +10,5 @@ Agenda
 I did it with benicio
 #Octubre 21,2025
 Lessons with coding with Ai
+#November 10, 2025
+Claim
