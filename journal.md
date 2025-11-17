@@ -12,3 +12,5 @@ I did it with benicio
 Lessons with coding with Ai
 #November 10, 2025
 Claim
+#November 17, 2025
+Yes i am looking foward to thanksgiving
