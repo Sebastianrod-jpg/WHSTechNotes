@@ -14,3 +14,5 @@ Lessons with coding with Ai
 Claim
 #November 17, 2025
 Yes i am looking foward to thanksgiving
+#December 1,2025
+A drone opreater
