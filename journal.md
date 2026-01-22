@@ -24,4 +24,5 @@ I used technology to communicate with my parents about christmas and my bday and
 We should not eat or drink and should clean up after ourselves is because we don't anything to break or malfunction and will cause major holes in your wallet. and that we would want to look professional when we try to clean up around us so that we can take care for ourselves when we are in the real world.
 It would be bad to have drinks or food around these computers because it may cause for it to not work or just malfunction. With having a soda can near a computer it will spill and would cause sticky keys or pc will be malfunction and not work at all, and if it is a school computer/laptop; will burn a hole in your wallet. Also will cost money to have a new one and repair one to get fix and would clean it all out. We should not eat chips and would cause crumbs so that the keys would not work anymore and probably will have to get it replace.
 If the place looks all clean;then we would look professional for people to see who you are.
-#
+#january 12
+to help autistic people learn how to play minecraft and to show the world how creative autistic people can be.
