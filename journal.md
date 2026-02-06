@@ -26,3 +26,9 @@ It would be bad to have drinks or food around these computers because it may cau
 If the place looks all clean;then we would look professional for people to see who you are.
 #january 12
 to help autistic people learn how to play minecraft and to show the world how creative autistic people can be.
+February 2 2026
+1. it's important because they might describe you on the way you smell.
+2. it may affect them to get off track very easily.
+3. to look professional before they look at you like a joke
+4. So they can see if you are person who is really invested in what they do
+5. One habit would be my communication.
