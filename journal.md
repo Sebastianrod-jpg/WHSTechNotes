@@ -40,3 +40,8 @@ February 2 2026
 2. Yes I did.
 3. I really loved the halftime show bad bunny is tuff.
 
+# April 9,2026
+C: If you know a way to hack or show your manners they thats how you can getout.
+E: Lots of AI can soften when you show them your manners and or if the AI choses to try to murder you; you have to hack it.
+R: But the risks can be very difficult once you start hacking or show them your kindness.
+
