@@ -45,3 +45,13 @@ C: If you know a way to hack or show your manners they thats how you can getout.
 E: Lots of AI can soften when you show them your manners and or if the AI choses to try to murder you; you have to hack it.
 R: But the risks can be very difficult once you start hacking or show them your kindness.
 
+# April 13,2026
+A rover and A satellite
+Claim: These items are very useful because you need to know the land scape
+Evidence: on mars they  rovers and a satellite.
+Reason: they can benifit the planet by exploring where we are.
+
+# April 20,2026 
+Claim: It matters a ton because it shows that people have no more creativity in rappers anymore
+Evidence: Drake had Ai in his music one time and yet it got him tons of back lash.
+Reasoning: This shows that having Ai in music is a Horrible idea.
