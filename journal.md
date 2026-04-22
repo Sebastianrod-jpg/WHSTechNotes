@@ -40,6 +40,12 @@ February 2 2026
 2. Yes I did.
 3. I really loved the halftime show bad bunny is tuff.
 
+# March 23,2026
+1. By data mostly the quarter of it was just guessing.
+2. Actually yes i got most of them wrong
+3. to see how would the game go based off predictions
+4. to analze their players stats and what not
+5. Statistics and Analytics and maybe Graphing
 # April 9,2026
 C: If you know a way to hack or show your manners they thats how you can getout.
 E: Lots of AI can soften when you show them your manners and or if the AI choses to try to murder you; you have to hack it.
